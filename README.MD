@@ -1,8 +1,8 @@
-Développeuse & cheffe de projet digitale 
+💻 Développeuse & 👩🏼 cheffe de projet digitale 📱 
 
  Qui Suis-je
 
-➡ + de 10 ans d’experiences en gestion de projet et operations digitales dans le respect des coûts,  des délais mais surtout des enjeux de l’entreprise. 
+➡ + de 10 ans d’experiences en gestion de projet et operations digitales dans le respect des coûts, des délais mais surtout des enjeux de l’entreprise. 
 
 ➡ Un vrai couteau suisse du digital, je peux traduire toutes les demandes pour l'adapter à tout type de public : IT vs marketing / Client vs Agence / Digital Native vs le reste du monde
 
